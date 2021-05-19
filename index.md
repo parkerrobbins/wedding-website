@@ -3,7 +3,7 @@ layout: post
 title: Welcome to Our Wedding Website
 description: We are so excited to invite you to celebrate with us!
 image:
-  feature: soft-trees.jpg
+  feature: hands.jpg
 ---
 
 This is built on Semantic.gs grid framework which I edited a bit to make it fluid. I hope you enjoy using, forking, whatevering this theme as much as I did making it. 
