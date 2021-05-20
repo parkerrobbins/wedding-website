@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Welcome to Elisabeth and Parker's Wedding Website
+title: Welcome to Elisabeth and Parker&rsquo;s Wedding Website
 description: We are so excited to celebrate with you!
 image:
   feature: hands.jpg
