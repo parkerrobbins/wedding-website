@@ -1,5 +1,5 @@
 ---
-layout: home
+layout: page
 title: Welcome to Elisabeth and Parker's Wedding Website
 description: We are so excited to celebrate with you!
 image:
