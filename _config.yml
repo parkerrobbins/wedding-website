@@ -28,8 +28,8 @@ opengraph:
 # Links to include in top navigation
 # For external links add external: true
 links:
-  - title: Features
-    url: /#features
+  - title: FAQ
+    url: /#frequently-asked-questions
 
 # http://en.wikipedia.org/wiki/List_of_tz_database_time_zones
 timezone:    America/New_York
