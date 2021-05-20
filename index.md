@@ -18,9 +18,16 @@ Elisabeth and Parker will be celebrating our marriage on 1 August 2021 from 12 n
 
 Yes, Elisabeth and Parker were married at City Hall in Worcester, Massachusetts, on 18 March 2021. (We will consider this day our wedding anniversary.) After having our wedding delayed by the COVID-19 pandemic last year, we did not want to delay getting married for another year, so we decided to have a small ceremony and celebration with family. Now that it's becoming safer to gather, we wanted to have a ceremony and reception more like the one we originally intended, surrounded by our friends and family.
 
+**Did Elisabeth change her name?**
+No, Elisabeth is keeping her last name.
+
 **Why did you move the wedding so many times?** 
 
 We originally planned to get married on 3 October 2020. Of course, the pandemic had other plans for us. We then pushed the wedding to 18 September 2021, hoping that the pandemic would be under control by then. That date would have marked the eighth anniversary of our relationship. But then we found out that Parker had been accepted to a Master of Arts program in Linguistics at the University of Toronto, which starts in early September. 
+
+**When are you moving to Toronto?** 
+We are hoping to move the second week of August, shortly after the wedding. Wish us luck!
+
 
 
 
