@@ -26,6 +26,7 @@ No, Elisabeth is keeping her last name.
 We originally planned to get married on 3 October 2020. Of course, the pandemic had other plans for us. We then pushed the wedding to 18 September 2021, hoping that the pandemic would be under control by then. That date would have marked the eighth anniversary of our relationship. But then we found out that Parker had been accepted to a Master of Arts program in Linguistics at the University of Toronto, which starts in early September. 
 
 **When are you moving to Toronto?** 
+
 We are hoping to move the second week of August, shortly after the wedding. Wish us luck!
 
 
