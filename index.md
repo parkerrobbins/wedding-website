@@ -34,7 +34,7 @@ We are hoping to move the second week of August, shortly after the wedding. Wish
 
 Please RSVP using the Google Form link on your invitation by 7 July 2021. In the form, please indicate: whether you can come, who from your party will be in attendance, what food you would like for lunch, and whether you require accommodation. Let us know if you have any problems with the form! 
 
-
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d2975.064629512478!2d-72.58033528456184!3d41.78382077922977!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x89e656e4e18f3da1%3A0x491cec775089593a!2sWickham%20Park!5e0!3m2!1sen!2sus!4v1621710177273!5m2!1sen!2sus" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy"></iframe>
 
 
 <!-- * flexible, uses max-width for responsive goodness -->
