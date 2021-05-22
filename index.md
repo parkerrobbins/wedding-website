@@ -30,6 +30,10 @@ We originally planned to get married on 3 October 2020. Of course, the pandemic 
 
 We are hoping to move the second week of August, shortly after the wedding. Wish us luck!
 
+## RSVP
+
+Please RSVP using the Google Form link on your invitation by 7 July 2021. In the form, please indicate: whether you can come, who from your party will be in attendance, what food you would like for lunch, and whether you require accommodation. Let us know if you have any problems with the form! 
+
 
 
 
