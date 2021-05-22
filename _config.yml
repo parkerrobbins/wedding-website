@@ -29,7 +29,7 @@ opengraph:
 # For external links add external: true
 links:
   - title: RSVP
-    url: /#RSVP
+    url: /#rsvp
   - title: The Venue
     url: /#the-venue
   - title: The Plan
