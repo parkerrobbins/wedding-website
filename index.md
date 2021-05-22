@@ -34,7 +34,31 @@ We are hoping to move the second week of August, shortly after the wedding. Wish
 
 Please RSVP using the Google Form link on your invitation by 7 July 2021. In the form, please indicate: whether you can come, who from your party will be in attendance, what food you would like for lunch, and whether you require accommodation. Let us know if you have any problems with the form! 
 
+## The Venue
+
+We will have our ceremony and reception at the Cabin in Wickham Park in Manchester, CT. Here is the location of the park in Google maps:
 <iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d2975.064629512478!2d-72.58033528456184!3d41.78382077922977!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x89e656e4e18f3da1%3A0x491cec775089593a!2sWickham%20Park!5e0!3m2!1sen!2sus!4v1621710177273!5m2!1sen!2sus" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy"></iframe>
+
+It is handicapped accessible. 
+
+When driving into the park, please tell the ranger that you are here for our wedding. You do not need to show your invitation. They will direct you to the correct location. 
+
+Our ceremony will be outside, weather permitting. There will be bench seating. There is not much shade, so sun protection is advised. In case of rain, the ceremony will take place in the Cabin.
+
+## The Plan 
+
+Our ceremony will begin at 12 so please arrive around 11:45am. Hors d'Ouvres will begin around 12:30pm and there will be a cocktail hour while we get pictures taken. There are gardens to walk through and sit in, and dancing will take place in the Cabin. Lunch will be served buffet-style no later than 2pm. There will be an open bar for the first hour of the reception; after that, it will be a cash bar. 
+
+There is a block of rooms at a nearby hotel. If you require accommodation, please indicate for which night(s) you would like to stay when you RSVP. 
+
+The attire is [dressy casual](https://www.theknot.com/content/what-to-wear-dressy-casual). 
+
+## The Registry
+
+As we are moving to Canada, we will not be able to take a lot of things with us, therefore our registry is sparse. We would also appreciate money for our moving, furniture, and eventual honeymoon fund. Though we appreciate the sentiment, please be aware that we will not be able to use gift cards purchased in the U.S. in Canada.
+
+[Here](https://www.amazon.com/wedding/organize-registry?ref_=wedding_subnav) is our registry. 
+
 
 
 <!-- * flexible, uses max-width for responsive goodness -->
