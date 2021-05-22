@@ -28,16 +28,16 @@ opengraph:
 # Links to include in top navigation
 # For external links add external: true
 links:
-  - title: FAQ
-    url: /#frequently-asked-questions
   - title: RSVP
     url: /#RSVP
   - title: The Venue
     url: /#the-venue
-  -title: The Plan
+  - title: The Plan
     url: /#the-plan
-  -title: The Registry
+  - title: The Registry
     url: /#the-registry
+  - title: FAQ
+    url: /#frequently-asked-questions
     
 
 # http://en.wikipedia.org/wiki/List_of_tz_database_time_zones
