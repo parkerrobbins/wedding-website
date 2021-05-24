@@ -10,7 +10,7 @@ image:
 
 Welcome to our wedding website! Here you will find details about the date and venue, how to RSVP, and all the other details you'll need!
 
-Elisabeth and Parker will be celebrating our marriage on 1 August 2021 from 12 noon to 5 pm at Wickham Park in Manchester, CT. Please arrive around 11:45am as the ceremony will begin at 12. 
+Elisabeth and Parker will be celebrating our marriage on 1 August 2021 from 12 noon to 5 pm at Wickham Park in Manchester, CT. Our ceremony will begin promptly at 12. 
 
 ## RSVP
 
@@ -29,7 +29,7 @@ Our ceremony will be outside, weather permitting. There will be bench seating. T
 
 ## The Plan 
 
-Our ceremony will begin at 12 so **please arrive around 11:45am.** Hors d'Ouvres will begin around 12:30pm and there will be a cocktail hour while we get pictures taken. There are gardens to walk through and sit in, and dancing will take place in the Cabin. Lunch will be served buffet-style no later than 2pm. There will be an open bar for the first hour of the reception; after that, it will be a cash bar. 
+Our ceremony will begin at 12. The cocktail hour and hors d'ouevres will begin around 12:30pm. There are gardens to walk through and sit in. Lunch will be served buffet-style no later than 2pm. There will be an open bar for the first hour; after that, it will be a cash bar. Dancing will take place in the Cabin.
 
 There is a block of rooms at a nearby hotel. If you require accommodation, please indicate for which night(s) you would like to stay when you RSVP. 
 
