@@ -59,6 +59,10 @@ We originally planned to get married on 3 October 2020. Of course, the pandemic 
 
 We are hoping to move the second week of August, shortly after the wedding. Wish us luck!
 
+## Contact us
+
+You can contact us at elisabethandparker2021@gmail.com 
+
 
 
 <!-- * flexible, uses max-width for responsive goodness -->
