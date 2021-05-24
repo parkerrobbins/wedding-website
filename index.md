@@ -61,7 +61,7 @@ We are hoping to move the second week of August, shortly after the wedding. Wish
 
 ## Contact us
 
-You can contact us at elisabethandparker2021@gmail.com 
+You can contact us at [elisabethandparker2021@gmail.com](mailto:elisabethandparker2021@gmail.com) 
 
 
 
