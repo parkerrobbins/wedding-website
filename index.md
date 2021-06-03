@@ -29,7 +29,7 @@ Our ceremony will be outside, weather permitting. There will be bench seating. T
 
 ## The Plan 
 
-Our ceremony will begin at 12. The social hour and hors d'ouevres will begin around 12:30pm. There are gardens to walk through and sit in. Lunch will be served buffet-style no later than 2pm. Dancing will take place in the Cabin.
+Our ceremony will begin at 12. The social hour and hors d'ouevres will begin around 12:30pm. There are gardens to walk through and sit in. There will be a cash bar. Lunch will be served buffet-style no later than 2pm. Dancing will take place in the Cabin.
 
 There is a block of rooms at a nearby hotel. If you require accommodation, please indicate for which night(s) you would like to stay when you RSVP. 
 
@@ -37,7 +37,7 @@ The attire is [dressy casual](https://www.theknot.com/content/what-to-wear-dress
 
 ## The Registry
 
-As we are moving to Canada, we will not be able to take a lot of things with us, therefore our registry is sparse. We would also appreciate money for our moving, furniture, and eventual honeymoon fund. Though we appreciate the sentiment, please be aware that we will not be able to use gift cards purchased in the U.S. in Canada.
+As we are moving to Canada, we will not be able to take a lot of things with us, therefore our registry is sparse. We would also appreciate money for our moving, furniture, and eventual honeymoon fund as a check made out to either Elisabeth or Parker. Though we appreciate the sentiment, please be aware that we will not be able to use gift cards purchased in the U.S. in Canada.
 
 [Here](https://www.amazon.com/wedding/share/parker-elisabeth-2021) is our registry. 
 
