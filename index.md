@@ -29,7 +29,7 @@ Our ceremony will be outside, weather permitting. There will be bench seating. T
 
 ## The Plan 
 
-Our ceremony will begin at 12. The social hour and hors d'ouevres will begin around 12:30pm. There are gardens to walk through and sit in. There will be a cash bar. Lunch will be served buffet-style no later than 2pm. Dancing will take place in the Cabin. Unfortunately we cannot accommodate children---thank you for your understanding
+Our ceremony will begin at 12. The social hour and hors d'ouevres will begin around 12:30pm. There are gardens to walk through and sit in. There will be a cash bar. Lunch will be served buffet-style no later than 2pm. Dancing will take place in the Cabin. Unfortunately we cannot accommodate children---thank you for your understanding.
 
 There is a block of rooms at a nearby hotel. If you require accommodation, please indicate for which night(s) you would like to stay when you RSVP. 
 
