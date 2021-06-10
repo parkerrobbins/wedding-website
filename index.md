@@ -39,7 +39,7 @@ The attire is [dressy casual](https://www.theknot.com/content/what-to-wear-dress
 
 As we are moving to Canada, we will not be able to take a lot of things with us, therefore our registry is sparse. We would also appreciate money for our moving, furniture, and eventual honeymoon fund as a check made out to either Elisabeth or Parker. Though we appreciate the sentiment, please be aware that we will not be able to use gift cards purchased in the U.S. in Canada.
 
-[Here](https://www.amazon.com/wedding/share/parker-elisabeth-2021) is our registry. We have temporarily taken our registry offline pending changes with our move. 
+[Here](https://www.amazon.com/wedding/share/parker-elisabeth-2021) is our registry. 
 
 ## Frequently asked questions
 
